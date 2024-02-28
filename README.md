@@ -1,1 +1,1 @@
-# Web_Technology
+# Web Technology Course (Mir Kowser Sir)
